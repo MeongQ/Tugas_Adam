@@ -1,0 +1,2 @@
+# Tugas_Adam
+latihan
